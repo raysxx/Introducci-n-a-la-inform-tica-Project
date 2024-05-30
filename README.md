@@ -1,1 +1,1 @@
-# Introducci-n-a-la-inform-tica-Project
+# Introduccion-a-la-informatica-Project
